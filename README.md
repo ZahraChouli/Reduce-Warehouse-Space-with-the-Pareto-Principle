@@ -1,0 +1,1 @@
+# Reduce-Warehouse-Space-with-the-Pareto-Principle
